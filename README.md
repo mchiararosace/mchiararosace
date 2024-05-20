@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ChiaraRosace
+- 🌱 I’m a PhD Student, dealing mainly with plant health-related matters
+- 📫 How to reach me: mariachiara.rosace@unicatt.it
